@@ -4,18 +4,8 @@ zotak
 
 
 
+OLA
 
-
-
-
-
-
-a
-a
-a
-a
-a
-a
 a
 a
 a
